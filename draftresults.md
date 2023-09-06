@@ -1,5 +1,3 @@
-Certainly, here's the analysis of each team's fantasy football draft in a clear markdown format:
-
 **Colt:**
 - Colt spent a significant portion of their budget on star players like Tyreek Hill and Nick Chubb, indicating a stars-and-scrubs strategy.
 - They invested heavily in wide receivers and running backs but didn't allocate much budget to quarterbacks and tight ends.
