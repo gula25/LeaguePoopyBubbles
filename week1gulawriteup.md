@@ -1,8 +1,11 @@
 # Week 1
+## Poopsnake vs Dead Rabbits
+- This game pits two longtime friends in a week 1 clash featuring no shortage of subplots.  Yahoo seems to favor the Rabbits in projections but a closer look at the game unveils plenty of intrigue.   I have to think that this game will likely come down to the output of each teams QB+WR combination, adding some drama into this affair which we may have to wait until Monday Night is complete to know the outcome of.
+    - For **Poopsnake** owners and fans round the league are wondering where Mike's heart is as he will have to balance his love of the Buffalo Bills against the production of his own *QB Rodgers*, *WR Wilson* and *NY Jets Defense* in week 1.
+    - For **DeadRabbits** Pat has parlayed his love of the Cowboys into ownership of *QB Prescott* and *WR Lamb* so there will be no question of where his allegiances lie this upcoming campaign.  A potent offense could materialize this week with *QB Jackson* at home against what looks to be a noncompetitve Texans squad.
+
 ## Team 20Five vs A-A-Rons Team ##
 - An interesting matchup pits league newcomer against the three time champion in what should result in a down to the wire contest.
 - These teams both offer up a lot of ***Q*** marks early in the season:
     - For **A-A-Ron** its literally on his roster.  This includes his most potent and expensive draft day weapon, the $38 *TE Kelce*.  Along with his 3rd selection *WR Waddle* and two others you have to wonder if his team has enough firepower to make a splash debut in LPB.  Fortunately he does have the reliable *TE Andrews* to slot into Kelce's position, opting for a draft day strategy from a page out of Patriots coach Bill Belichek's book.  One wonders if this a winning formula in a league as prestigious as LPB.
     - For **Team 20Five** its not quite as literal, with the questions revolving around who from his roster will step up or step back in Week 1.  Outside of the QB/TE Combo of Jones and Waller he is relying on young talent to fulfill championship expectations.  He may opt to leave *QB Pickett* out of the starting lineup, even after he was the focus of a raucous bidding war on draft night.  His squad will have to pull the right levers this year to conjure up big scoring from week to week.  Whether or not the young Steelers QB will use this as competitve fuel for the upcoming season or potentialy create a rift in the locker rooom remains to be seen.
-
-
