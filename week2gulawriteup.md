@@ -1,0 +1,27 @@
+# Week 2
+
+## Gula's Game of the Week - CF vs Labbatt Drew Light
+- The marquee week 2 matchup in LPB features two teams off to the coveted 1-0 start.  This game started tantalizing early featuring a few key players in the TNF Vikings/Eagles matchup that figured to feature scoring.  The midweek featured some retooling around the edges for both teams, CF swapping around some fringe RB options while LDL was forced to find a spot on IR for *RB Wilson*
+      - **Labbatt Drew Light** has to feel a great deal of confidence getting off the ground with a win that seemingly never was in doubt against **Disease** in the week 1 matchup of the week.   Yahoo projections like Drew's lineup and there is reason to think he should be taken more seriously in his sophomore LPB campaign.
+      -**CF** Had to wait until Sunday night/Monday to pull ahead of his week one opponent **KGuns**.  He was able to find enough scoring from his lineup to survive lackluster performances by his deadly duo of *QB Allen* and *QB Hurts*.  This week could feature a more efficient effort as he already has a great start with *QB Hurts* and *TE Hockenson* impressively surpassing projections with timely touchdowns.
+- It is possible the winner of this matchup feels like they belong in the front runners of this season and it may be hard to argue against that by Monday Night.
+
+### Colt vs Disease
+- This is matchup to watch closely going into the weekend, Falls' lineup already slightly outpacing expectations with a solid *WR Jefferson* performance already on the books.  Colt may have dodged a bullet with a very close TD turned Touchback at the close of the 1st half costing Disease a big point swing.
+      - **Colt** has to feel very good after seeing the performance of his team in Week 1.  *QB Tua* and *WR Hill* had what could end up being one of the most explosive games of any QB and WR duo of the season.  Other players on his roster chipped in as well, as he pushed all the right buttons and easily smashed **GNS** putting up easily the highest output of week 1.  As long as *QB Tua* is healthy, anyone running into Colt may be running into a woodchipper on any given week.
+      - **Disease** may be just looking to weather the storm in this spot.  If he gets solid output from all positions he could find himself in contention come MNF where both players will have players contributing.  Alternatively if Belichek can't contain Miami's explosive playmakers this week anything he does or doesnt choose to do may not be relevant.
+  
+### GNS vs DeadRabbits
+- Some are already considering this game as a 'loser leaves town' matchup between two teams off to an 0-1 start.  *GNS* ran into Colts 'Miami Vice' while *DeadRabbits* just simply didn't pop off.  I like Pat's roster in a bounce back week as he has many veteran players who figure to score more consistently.  Alternatively relying on his *QB Prescott* and *WR Lamb* duo against a stingy NY Jets Defense may get him caught up once again.
+    - **KGuns features a high caliber tandem in *QB Burrow* and *WR Chase* as well as a well balanced offense that could score big points even if *QB Watson* is a bust in Cleveland this year.
+    - **GNS** Will simply have to fight off the shellshock from week 1, relying on his own Chargers duo to amplify his scoring output.  Some potentially favorable matchups along with a couple of big plays from his WR corps may be all it takes to right the ship and move on from the week 1 thrashing.
+
+### (Glab em by the Pussy)Poopsnake vs Team20Five
+- A matchup of LPB Founding Franchises features to be tight based on projections heading into the week.  Mike's squad comes in 1-0 after outlasting the **DeadRabbits** even with an injury to *QB Rodgers*, while Gula's week 1 performance left many fans physically ill as his team offered up enemic scoring.
+    - For **Team20Five** questions remain around where the scoring will come from with many young and unproven options found on the roster.  Potential salvation comes from a shrewd mid week FA acquisition of *WR Nacua*, although he may be questionable for the week 2 tilt.
+    - **Poopsnake** Was also busy on the FA waiver wire, opening up the checkbook to bring grizzled veteran *QB Garappolo* into the fold.  This was a necessity as the dramatic week 1 injury to *QB Rodgers* left him with not many options.  He'll look for reliable scoring output from veteran options to carry the day.
+
+### KGuns vs A-A-Rons Team ##
+- LPB Virgin *A-A-Rons Team* announced his arrival with a layup line victory against *Team20Five* in week 1.  His team scored a respectable 111+ points in what would be one of the most lobsided Week 1 matchups.  Meanwhile Jake brings his squad in after a heartfelt and disappointing loss to Chad.
+    - **A-A-Ron** Is already off to a grand entrance to week 2 with *QB Cousins* having a classic good fantasy/questionable reality performance that makes him such a devisive option in LPB.  Relying on Cousins go-offs has proven fatal to many fantasy owners of the year, but right now Aaron is riding high.
+    - For **KGuns** we all are probably expecting a return to form from his dynamic duo of *QB Burrow* and *WR Chase* after what looked like diarrhea in the tub week 1 for Cinci.  If they are able to quickly shake off the rust and get back to form Jake has more than a couple go-off options to pair with his duo to make him a formidable force who won't stay winless for long.
