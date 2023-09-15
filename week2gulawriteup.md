@@ -3,7 +3,7 @@
 ## Gula's Game of the Week - CF vs Labbatt Drew Light
 - The marquee week 2 matchup in LPB features two teams off to the coveted 1-0 start.  This game started tantalizing early featuring a few key players in the TNF Vikings/Eagles matchup that figured to feature scoring.  The midweek featured some retooling around the edges for both teams, CF swapping around some fringe RB options while LDL was forced to find a spot on IR for *RB Wilson*
     - **Labbatt Drew Light** has to feel a great deal of confidence getting off the ground with a win that seemingly never was in doubt against **Disease** in the week 1 matchup of the week.   Yahoo projections like Drew's lineup and there is reason to think he should be taken more seriously in his sophomore LPB campaign.
-    -**CF** Had to wait until Sunday night/Monday to pull ahead of his week one opponent **KGuns**.  He was able to find enough scoring from his lineup to survive lackluster performances by his deadly duo of *QB Allen* and *QB Hurts*.  This week could feature a more efficient effort as he already has a great start with *QB Hurts* and *TE Hockenson* impressively surpassing projections with timely touchdowns.
+    - **CF** Had to wait until Sunday night/Monday to pull ahead of his week one opponent **KGuns**.  He was able to find enough scoring from his lineup to survive lackluster performances by his deadly duo of *QB Allen* and *QB Hurts*.  This week could feature a more efficient effort as he already has a great start with *QB Hurts* and *TE Hockenson* impressively surpassing projections with timely touchdowns.
 - It is possible the winner of this matchup feels like they belong in the front runners of this season and it may be hard to argue against that by Monday Night.
 
 ### Colt vs Disease
