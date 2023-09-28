@@ -6,7 +6,7 @@
     - **KGuns** relied on a balanced attack last week to top Glab 'em by the time the dust settled on Monday Night.  Jake has his own potent duo who has yet to really percolate this season.  Being 1-2 without *QB Burrow* and *WR Chase* really go off has to be somewhat reassuring.
 - Potential wrinkle here if *RB Mixon* ends up finishing off scoring drive for the Bengals offense that could determine the outcome of this tight matchup.
 
-### A-Aron's Team (3-0) vs Labbatt Drew Light(1-1)
+### A-Aron's Team (3-0) vs Labbatt Drew Light(1-2)
 - The two newest LPB owners lock horns in this much anticipated tilt.  Yahoo predictions suggest this could be a down to the wire game.
     - **A-Aron's Team** has made an immediate impact on LPB (some are likening his arrival to Deion Sanders at Colorado) as he has yet to take an L this campaign.  Fans of analytics though point to his soft schedule, low scoring output and reliance on aging QBs to lead his team as reasons why this romance may not last.
     - **Labbatt Drew Light** will need to rely on *QB Mahomes* having a solid performance if he expects his team to be the first to take the opposition to pound town.  Will the star quarterback revel in the spectacle that has surrounded the Chiefs star tight end, or will the Sunday Sauce be too spicy against a potentially stingy Jets D?
